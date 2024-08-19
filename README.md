@@ -1,1 +1,1 @@
-# Pensamento-l-gico
+# Pensamento lógico
